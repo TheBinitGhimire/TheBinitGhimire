@@ -12,12 +12,12 @@ I am following the unique **#DevSecNetSysServCloud** strategy in my Technology c
 *You can feel free to send a message to me here:* [https://forms.gle/pkc46VBTRLKKhtWTA](https://forms.gle/pkc46VBTRLKKhtWTA "https://forms.gle/pkc46VBTRLKKhtWTA")
 
 ### **binit**@**WHOISbinit**:**~/**$ ./contact -u "Binit Ghimire" --digital-profiles
-- **Facebook**: [Binit Ghimire (@InternetHeroBINIT](https://www.facebook.com/InternetHeroBINIT "@InternetHeroBINIT"))
-- **Twitter**: [Binit Ghimire (@WHOISbinit](https://twitter.com/WHOISbinit "@WHOISbinit"))
-- **LinkedIn**: [Binit Ghimire (@thebinitghimire](https://www.linkedin.com/in/thebinitghimire/ "@thebinitghimire"))
-- **GitHub**: Binit Ghimire (@TheBinitGhimire)
+- **Facebook**: [Binit Ghimire (@InternetHeroBINIT)](https://www.facebook.com/InternetHeroBINIT "Binit Ghimire (@InternetHeroBINIT)")
+- **Twitter**: [Binit Ghimire (@WHOISbinit)](https://twitter.com/WHOISbinit "Binit Ghimire (@WHOISbinit)")
+- **LinkedIn**: [Binit Ghimire (@thebinitghimire)](https://www.linkedin.com/in/thebinitghimire/ "Binit Ghimire (@thebinitghimire)")
+- **GitHub**: [Binit Ghimire (@TheBinitGhimire)](https://github.com/TheBinitGhimire/ "Binit Ghimire (@TheBinitGhimire)")
 - **YouTube**: [Binit Ghimire (/user/thebinitghimire)](https://www.youtube.com/user/TheBinitGhimire/ "Binit Ghimire (/user/thebinitghimire)")
 - **Telegram**: [@InternetHeroBINIT](https://t.me/InternetHeroBINIT "@InternetHeroBINIT")
-- **Instagram**: [@WHOISbinit](https://www.instagram.com/WHOISbinit/ "@WHOISbinit")
+- **Instagram**: [@WHOISbinit](https://www.instagram.com/WHOISbinit/ "@WHOISbinit") 
 
 ### **binit**@**WHOISbinit**:**~/**$ _
